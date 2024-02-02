@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Michael Kur
+- 👀 I’m interested in.. Java, C++ (Objective C) , Visual Studio
+- 🌱 I’m currently learning growthing my social media
+- 💞️ I’m looking to collaborate on Linkedin, Github.
+- 📫 How to reach me : Private Message
+- 😄 Pronouns: He
+- ⚡ Fun fact: 0x90
